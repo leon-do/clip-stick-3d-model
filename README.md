@@ -1,0 +1,1 @@
+# clip-stick-3d-model
